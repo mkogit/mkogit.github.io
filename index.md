@@ -11,3 +11,5 @@ This movie star is well known for his high resistance against attacks of aliens.
 As he always said:
 
 > Never give up hunting aliens
+
+<img src="https://st.depositphotos.com/2101261/3532/i/450/depositphotos_35328933-stock-photo-stickers.jpg" />
